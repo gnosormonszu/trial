@@ -1,0 +1,33 @@
+
+ 
+# Janko Bobetko: Sve moje bitke - A Memoir of a Croatian General
+  
+If you are interested in the history of Croatia and its struggle for independence, you might want to read **Janko Bobetko: Sve moje bitke** (Janko Bobetko: All My Battles), a memoir of a Croatian Army general and Chief of the General Staff during the Croatian War of Independence from 1992 until his retirement in 1995[^2^].
+  
+In this book, Bobetko reveals his memories and testimonies as well as documents about the years - 1941 - 1971 - 1990 - 1995 and the events in which he actively participated[^1^] [^2^]. The book is divided into three chapters: Records and Testimonies, Documents, Appendices. On almost eight hundred pages, the author openly talks about all the battles he planned, executed and finished. He was always guided by an honest thought - to achieve his own, free, Croatian state[^1^].
+ 
+**Download File ✓ [https://t.co/bV5OthAI01](https://t.co/bV5OthAI01)**
+
+
+  
+The book is richly documented with numerous photographs, maps of military operations, copies of military documents - orders, directives, letters etc. It is necessary to read the book to understand what happened in Croatia and around it[^1^]. The book also includes summaries in English and German[^1^].
+  
+Some of the military operations that Bobetko describes in detail are Äagalj, Tigar, Maslenica, MedaÄki DÅ¾ep, Bljesak and Oluja[^3^]. In his book, he also wrote:
+ 
+janko bobetko sve moje bitke free pdf,  download janko bobetko sve moje bitke ebook,  janko bobetko sve moje bitke pdf online,  janko bobetko sve moje bitke book pdf,  janko bobetko sve moje bitke pdf full,  janko bobetko sve moje bitke memoir pdf,  janko bobetko sve moje bitke pdf read,  janko bobetko sve moje bitke autobiography pdf,  janko bobetko sve moje bitke pdf file,  janko bobetko sve moje bitke pdf format,  janko bobetko sve moje bitke pdf version,  janko bobetko sve moje bitke pdf document,  janko bobetko sve moje bitke pdf text,  janko bobetko sve moje bitke pdf copy,  janko bobetko sve moje bitke pdf download link,  janko bobetko sve moje bitke pdf download site,  janko bobetko sve moje bitke pdf download free,  janko bobetko sve moje bitke pdf download online,  janko bobetko sve moje bitke pdf download ebook,  janko bobetko sve moje bitke pdf download full,  janko bobetko sve moje bitke pdf download book,  janko bobetko sve moje bitke pdf download memoir,  janko bobetko sve moje bitke pdf download read,  janko bobetko sve moje bitke pdf download autobiography,  janko bobetko sve moje bitke pdf download file,  janko bobetko sve moje bitke pdf download format,  janko bobetko sve moje bitke pdf download version,  janko bobetko sve moje bitke pdf download document,  janko bobetko sve moje bitke pdf download text,  janko bobetko sve moje bitke pdf download copy,  how to download janko bobetko sve moje bitke pdf,  where to download janko bobetko sve moje bitke pdf,  best way to download janko bobetko sve moje bitke pdf,  easiest way to download janko bobetko sve moje bitke pdf,  fastest way to download janko bobetko sve moje bitke pdf,  cheapest way to download janko bobetko sve moje bitke pdf,  safest way to download janko bobetko sve moje bitke pdf,  legal way to download janko bobetko sve moje bitke pdf,  free way to download janko bobetko sve moje bitke pdf,  online way to download janko bobetko sve moje bitke pdf,  ebook way to download janko bobetko sve moje bitke pdf,  full way to download janko bobetko sve moje bitke pdf,  book way to download janko bobetko sve moje bitke pdf,  memoir way to download janko bobetko sve moje bitke pdf,  read way to download janko bobetko sve moje bitke pdf,  autobiography way to download janko bobetko sve moje bitke pdf,  file way to download janko bobetko sve moje bitke pdf,  format way to download janko bobetko sve moje bitke pdf,  version way to download janko bobetko sve moje bitke pdf
+
+> "I am proud of my soldiers who fought for their homeland with dignity and courage. I am proud of my homeland that gave birth to such heroes. I am proud of my people who endured all the hardships and sacrifices for their freedom. I am proud of my faith that gave me strength and hope. I am proud of my history that taught me to love and respect my country. I am proud of my destiny that allowed me to serve my nation."
+
+If you want to download a PDF version of this book, you can use the link below. However, we recommend that you buy a hardcover copy from a reputable online bookstore or a local library to support the author and his work.
+  
+[Download PDF](https://openlibrary.org/books/OL288349M/Sve_moje_bitke)
+  
+In addition to his role in the Croatian War of Independence, Bobetko also had a long and distinguished career as a partisan fighter and a military officer in the former Yugoslavia. He was one of the founding members of 1st Sisak Partisan Detachment, the first anti-fascist military unit during World War II in Yugoslavia. He fought against the Nazi occupation and the UstaÅ¡e regime, and participated in many battles and campaigns across Yugoslavia and abroad.
+  
+After the war, he continued his military service in the Yugoslav People's Army (JNA), rising to the rank of general. He held various commands and positions, such as the commander of the 5th Army District in Zagreb, the deputy chief of staff of JNA, and the head of the Military Academy. He was also involved in some international missions, such as the Non-Aligned Movement observer in Vietnam and Cambodia. He retired from JNA in 1972, after he was accused of being a Croatian nationalist by the communist authorities.
+  
+He returned to public life in 1990, when he joined the Croatian Democratic Union (HDZ) and supported Franjo TuÄman's vision of an independent Croatia. He became one of the key figures in the formation and development of the Croatian Army (HV), and was appointed as its chief of staff in 1992. He led HV through some of the most decisive and successful operations against the Serb rebels and the JNA, such as Operation Storm, which liberated most of the occupied Croatian territory in 1995.
+  
+He retired from HV in 1995, but remained active in politics and public affairs. He was elected as a member of parliament for HDZ in 2000, and was also nominated as a presidential candidate by some war veterans' associations. However, he withdrew from the race due to his poor health. In 2001, he was indicted by the International Criminal Tribunal for the former Yugoslavia (ICTY) for alleged war crimes committed during Operation Medak Pocket in 1993. He refused to cooperate with ICTY and denied any wrongdoing. He died in 2003 at his home in Zagreb.
+ 8cf37b1e13
+ 
